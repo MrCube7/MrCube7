@@ -1,4 +1,5 @@
-## Hi there 👋
+## Hiihihihihihi!! - From Cali!! (I definitely don't like MrCube6 :P)
+
 
 <!--
 **MrCube7/MrCube7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
