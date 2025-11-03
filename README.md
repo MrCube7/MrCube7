@@ -1,3 +1,4 @@
+![MrCube6_BlockWars_Skin](https://github.com/user-attachments/assets/1eb12ecd-3498-42bf-afee-9d743aa2aff2)
 ## Hiihihihihihi!! - From Cali!! (I definitely don't like MrCube6 :P)
 
 
