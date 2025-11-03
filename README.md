@@ -1,5 +1,11 @@
+!!!hihihihihi!! -From Cali!!🌑🌙
+
+^> Please call me Cali or Kelly (Perfered Cali for Randos and Kelly for Friends)
+
+I may not be actively online whenever you see me on ponytown but freely c+h unless i say otherwise in my name! also w2i when im offtab or smth. I suck at making complete convos and making desions srysrysry!!!!
+
+I love booksss!! My favorite book is "Darkbeast!" 100% int if you know the book and read it ^^
 ![MrCube6_BlockWars_Skin](https://github.com/user-attachments/assets/1eb12ecd-3498-42bf-afee-9d743aa2aff2)
-## Hiihihihihihi!! - From Cali!! (I definitely don't like MrCube6 :P)
 
 
 <!--
