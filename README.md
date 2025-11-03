@@ -2,11 +2,11 @@
 
 **!!!hihihihihi!! -From Cali!!🌑🌙 (MrCube6 Fans int plzzzz!)
 
-^> Please call me Cali or Kelly (Perfered Cali for Randos and Kelly for Friends)
+^> Please call me Cali or Kelly (Perfered Cali for Randos and both for Friends)🌑
 
-I may not be actively online whenever you see me on ponytown but freely c+h unless i say otherwise in my name! also w2i when im offtab or smth. I suck at making complete convos and making desions srysrysry!!!!
+I may not be actively online whenever you see me on ponytown but freely c+h unless i say otherwise in my name! also w2i when im offtab or smth. I suck at making complete convos and making desions srysrysry!!!! 🌑 
 
-I love booksss!! My favorite book is "Darkbeast!" 100% int if you know the book and read it ^^
+I love booksss!! My favorite book is "Darkbeast!" 100% int if you know the book and read it ^^ Also!! I'm a writer! I love writing poems and even wrote one for a semi-big event!(I'd never do it for a larger large largest event😭) ^>^
 ![MrCube6_BlockWars_Skin](https://github.com/user-attachments/assets/1eb12ecd-3498-42bf-afee-9d743aa2aff2)
 
 
