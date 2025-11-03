@@ -1,3 +1,5 @@
+<img width="1024" height="170" alt="R (4)" src="https://github.com/user-attachments/assets/38d7b864-0f36-41f7-8c9a-4439c285b978" />
+
 **!!!hihihihihi!! -From Cali!!🌑🌙 (MrCube6 Fans int plzzzz!)
 
 ^> Please call me Cali or Kelly (Perfered Cali for Randos and Kelly for Friends)
