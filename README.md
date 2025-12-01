@@ -5,8 +5,9 @@
 ^> Please call me Cali or Kelly (Perfered Cali for Randos and both for Friends)🌑
 
 I may not be actively online whenever you see me on ponytown but freely c+h unless i say otherwise in my name! also w2i when im offtab or smth. I suck at making complete convos and I feel like people don't care for what I say or smth! Kinda shy even when we are friends srsysyysys so int first even when friend plz!!
+(I can't write brbro)
 
-I love booksss!! My favorite book is "Darkbeast!" 100% int if you know the book and read it ^^ Also!! I'm a writer! I love writing poems and even wrote one for a semi-big event!(I'd never do it for a larger large largest event😭) ^>^
+New duo Acquired after Jumpers video😻👽👽👻👻
 ![MrCube6_BlockWars_Skin](https://github.com/user-attachments/assets/1eb12ecd-3498-42bf-afee-9d743aa2aff2)
 
 
